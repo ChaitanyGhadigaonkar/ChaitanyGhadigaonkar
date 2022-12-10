@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **react javascript html css**
 
-- 📫 How to reach me **chaitanyghadiagonkar28@gamil.com**
+- 📫 How to reach me **chaitanyghadigaonkar28@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
